@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+I'm looking for new oppertunities outside Amazon to work right now. If you're a recruiter or has any contacts for the same, do contact me.
+
+Thanks for visiting my profile.
 <!--
 **rohitjain00/rohitjain00** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
